@@ -12,3 +12,4 @@ Turkey
 The English name Turkey first appeared in the late 14th century
 The first state that was called Armenia 
 The House of Seljuk was a branch of the Kınık Oğuz Turks 
+In 1514, Sultan Selim I (1512–1520) successfully expanded the empire's southern
